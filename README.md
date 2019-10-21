@@ -1,3 +1,3 @@
 # ChamikaNew
 chamikaNew
-Edited by Dimuthui
+Edited by Chamika
